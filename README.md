@@ -16,29 +16,29 @@ I know that we were made to break
 
 So what? I don't mind
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
 Oh, oh, oh, oh
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
-Are you gonna stay the night?
-
-Doesn't mean we're bound for life
-
-So, oh, oh, oh
-
-Are you gonna stay the night?
-
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
 Doesn't mean we're bound for life
 
 So, oh, oh, oh
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
+
+Are you gonna stay the knight?
+
+Doesn't mean we're bound for life
+
+So, oh, oh, oh
+
+Are you gonna stay the knight?
 
 I am a fire, you're gasoline
 
@@ -56,42 +56,42 @@ I know that we were made to break
 
 So what? I don't mind
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
 Oh, oh, oh, oh
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
-Are you gonna stay the night? (When we get burned)
+Are you gonna stay the knight? (When we get burned)
 
 Doesn't mean we're bound for life (we never learn)
 
 So, oh, oh, oh
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
-Night, night, night, night, night
+knight, knight, knight, knight, knight
 
-Night, night, night, night, night
+knight, knight, knight, knight, knight
 
-Night, night, night, night, night
+knight, knight, knight, knight, knight
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
 Doesn't mean we're bound for life
 
 So, oh, oh, oh
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
 
 Oh, oh, oh, oh
 
-Are you gonna stay the night?
+Are you gonna stay the knight?
